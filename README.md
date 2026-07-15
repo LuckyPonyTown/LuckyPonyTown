@@ -11,6 +11,6 @@ INTERACT 👍👍👍👍: interact freely!!!<br>
 <img width="90" height="100" alt="mlp-fim-mlp" src="https://github.com/user-attachments/assets/d48f3ba8-c9b2-41fa-b5d9-efb4902d166f" />
 <img width="90" height="100" alt="pie-mlp" src="https://github.com/user-attachments/assets/9de60400-5bf4-449a-8892-12289500935b" />
 ##
-ok  that's it!!!!<br>
+ok  that's it! confetti canons!!!<br>
 <img width="498" height="180" alt="confetti" src="https://github.com/user-attachments/assets/cf380187-191e-4850-abaf-9cfc556b5d56" />
 
