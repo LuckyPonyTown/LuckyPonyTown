@@ -6,6 +6,7 @@
 <img width="70" height="78" alt="pony-town-pink horse-dance-4-padded-4x" src="https://github.com/user-attachments/assets/648f4336-6dbd-43e5-ab0e-e146661292e6" />
 ##
 DNI 👎👎👎👎: no specific dni! just dont be mean or weird, or homophobic or you know what i mean 😂😂😂<br>
+INTERACT 👍👍👍👍: interact freely!!!<br>
 ##
 ok  that's it!!!!<br>
 <img width="498" height="180" alt="confetti" src="https://github.com/user-attachments/assets/cf380187-191e-4850-abaf-9cfc556b5d56" />
