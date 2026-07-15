@@ -3,7 +3,7 @@
 ❤ i mainly use these ponies!<br>
 <img width="70" height="78" alt="pony-town-shadow -dance-4-padded-toy336-4x" src="https://github.com/user-attachments/assets/7973820c-3280-43d9-bd86-71b9dc1a4be8" />
 <img width="70" height="78" alt="pony-town-Mayo-dance-4-padded-4x" src="https://github.com/user-attachments/assets/56a8a674-19bc-4a80-aa97-e538f4e6f2b4" />
-DNI 👎👎👎👎: no specific dni! just dont be mean or weird, you know what i mean
+DNI 👎👎👎👎: no specific dni! just dont be mean or weird, you know what i mean<br>
 ##
-ok  that's it!!!!
+ok  that's it!!!!<br>
 <img width="498" height="278" alt="85490d6827a15ccbace82a79aafbbe6c" src="https://github.com/user-attachments/assets/5e301c4f-ffa4-4c12-b3b1-13898e741602" />
