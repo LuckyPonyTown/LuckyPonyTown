@@ -8,10 +8,8 @@
 ##
 DNI 👎👎👎👎: no specific dni! just dont be mean or weird, or homophobic or you know what i mean 😂😂😂<br>
 INTERACT 👍👍👍👍: interact freely!!!<br>
+<img width="90" height="100" alt="swiftoons-pinkie-pie" src="https://github.com/user-attachments/assets/c55dbca2-80b1-44d2-8a0a-21d0cc6e75da" /><br>
 ##
 ok  that's it!!!!<br>
 <img width="498" height="180" alt="confetti" src="https://github.com/user-attachments/assets/cf380187-191e-4850-abaf-9cfc556b5d56" />
-<img width="90" height="100" alt="swiftoons-pinkie-pie" src="https://github.com/user-attachments/assets/00e1973a-d985-4522-99e5-6a1682f0b549" />
-<img width="90" height="100" alt="pink-cute" src="https://github.com/user-attachments/assets/2d0ecfac-5de0-49f1-b7e5-ae7015ebab71" />
-<img width="90" height="100" alt="mlp-fim-mlp" src="https://github.com/user-attachments/assets/500254bc-76d6-45ad-a047-89f7489f9b3b" />
 
