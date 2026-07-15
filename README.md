@@ -7,4 +7,5 @@
 DNI 👎👎👎👎: no specific dni! just dont be mean or weird, you know what i mean<br>
 ##
 ok  that's it!!!!<br>
-<img width="498" height="278" alt="85490d6827a15ccbace82a79aafbbe6c" src="https://github.com/user-attachments/assets/5e301c4f-ffa4-4c12-b3b1-13898e741602" />
+<img width="498" height="280" alt="confetti" src="https://github.com/user-attachments/assets/cf380187-191e-4850-abaf-9cfc556b5d56" />
+
